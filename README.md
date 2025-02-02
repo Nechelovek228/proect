@@ -1,2 +1,0 @@
-# proect
-my school proect
